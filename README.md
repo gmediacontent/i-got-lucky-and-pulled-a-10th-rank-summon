@@ -1,1 +1,2 @@
-# i-got-lucky-and-pulled-a-10th-rank-summon
+# I Got Lucky and Pulled a 10th Rank Summon
+Quand Kang Junghoon a lancé Last Savior, le nouveau jeu en réalité virtuelle à la mode, il s’attendait à une expérience de jeu des plus standards. Comme tout le monde, il a dû tirer au hasard un héros au rang compris entre 1 et 9 étoiles. Comme tout le monde, il a croisé les doigts en priant pour tomber sur un 9 Étoiles. Et comme absolument personne, il a tiré un héros au rang jamais vu… 0 Étoile ! Maintenant, la question est… c’était un énorme coup de bol ou la poisse la plus totale, au juste ?!
